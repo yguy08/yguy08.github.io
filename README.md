@@ -1,1 +1,6 @@
-REAL TIME NEWS
+Speculation 1000
+
+Futures
+- Grains
+- Tropical
+- 
